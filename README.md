@@ -1,0 +1,1 @@
+# technicalmantraforyou.blogspot.com
